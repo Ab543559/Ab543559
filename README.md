@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on System design and development<br>👯 I believe in the power of collaboration and open source<br>🤝 I’m eager to learn and solve more problem using tech<br>🌱 II enjoy enjoy developing Web System and Designing Mobile Apps<br>💬 Feel free to reach me at arnoldsimony41@gmail.com<br>⚡ I love Watching Movies, Traveling and Food<br><br><br><br><br><br><br>
+🔭 I’m currently working on System design and development<br>👯 I believe in the power of collaboration and open source<br>🤝 I’m eager to learn and solve more problem using tech<br>🌱 I enjoy developing Web System and Designing Mobile Apps<br>💬 Feel free to reach me at arnoldsimony41@gmail.com<br>⚡ I love Watching Movies, Traveling and Food<br><br><br><br><br><br><br>
 
 
 ## 🌐 Socials:
